@@ -1,1 +1,1 @@
-Former quant with a passion for [programming languages](https://www.empirical-soft.com/). Now at Meta. Views are my own.
+Former quant, now in ads. Also into [programming languages](https://www.empirical-soft.com/) and high-performance computing.
