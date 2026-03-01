@@ -1,1 +1,1 @@
-Former quant, now in ads. Also into [programming languages](https://www.empirical-soft.com/) and high-performance computing.
+I've worked across various tech companies and quant firms. My specialties are [programming languages](https://www.empirical-soft.com/), high-performance computing, and systematic trading.
